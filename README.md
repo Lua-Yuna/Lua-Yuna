@@ -1,5 +1,5 @@
 - 👋 hoy, I’m @Lua-Yuna
-- 👀 I’m interested in ... um notebook pra ganhar dinheiro em strem
+- 👀 I’m interested in ... um notbook pra ganhar dinheiro em strem
 So isso, quero ajuda minha mãe... a situação ta difícil condições financeiras péssimas...
 
 <!---
